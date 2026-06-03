@@ -5,6 +5,3 @@
 Call me cleavr/kittenyoto/luffy
 Likes: shows, drawing, playing games, being online, sleeping, books, opening up social media, roblox, anime
 Dislikes: racist people, toxic people, art stealers, harrassment, profanity
-<p align="center">
-  <img src="https://pinimg.com" alt="Profile Header Banner" width="350">
-</p>
